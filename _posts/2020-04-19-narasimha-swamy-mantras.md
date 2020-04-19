@@ -118,3 +118,4 @@ This stotram is called the ‘King of Slokas’. It is believed to be taught to 
 1. https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/
 2. https://sanskritdocuments.org/kannada/stotra/
 3. https://www.prapatti.com/stotras.php
+4. http://shrinarasimha.com/slogas.html

@@ -96,6 +96,7 @@ Anrni jayathe sadyo, danam sigramavapnuyath ||9||
 [Original script](https://sanskritdocuments.org/doc_vishhnu/narasinhaRiNamochanastotra.html?lang=kn)
 
 **3. Narasimha Prapatti **
+
 ```
 MATA NARASIMHA, PITA NARASIMHA
 BRATHA NARASIMHA, SAKHA NARASIMHA

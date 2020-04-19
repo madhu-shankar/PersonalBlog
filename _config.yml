@@ -12,7 +12,7 @@ title-font-size: '3em' # a provision to adjust the size of your title. If it is 
 email: your-email@domain.com
 description: > # this means to ignore newlines until "baseurl:"
   Blog
-baseurl: "/blog" # the subpath of your site, e.g. /blog
+baseurl: "/personalblog" # the subpath of your site, e.g. /blog
 url: "https://madhu-shankar.github.io/" # the base hostname & protocol for your site
 
 permalink: :title/

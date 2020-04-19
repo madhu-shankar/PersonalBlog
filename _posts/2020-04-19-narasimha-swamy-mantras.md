@@ -30,6 +30,36 @@ tan no simhah prachodayat
 [Other Versions](https://templesinindiainfo.com/3-different-versions-shri-narasimha-gayatri-mantra-lyrics-in-kannada/)
 
 **2. Narasimha Runa-Vimochana Stotra.**
+
+```
+Devata karya sidhyartham, sabhasthambha samudbhavam |
+Sri nrisimham mahaveeram namami runa mukthaye ||1||
+
+Lakshmya aalingitha vamangam, bhakthanaam vara dayakam |
+Sri nrisimham mahaveeram namami runa mukthaye ||2||
+
+Aantramaladaram, sankha chakrabja aayudarinim |
+Sri nrisimham mahaveeram namami runa mukthaye ||3||
+
+Smaranath sarva papagnam, khadruja visha nasanam |
+Sri nrisimham mahaveeram namami runa mukthaye ||4||
+
+Simhanadenamahatha, digdanthi bhayanasanam |
+Sri nrisimham mahaveeram namami runa mukthaye ||5||
+
+Prahlada varadam, srisam, daithyeswara vidharanam |
+Sri nrisimham mahaveeram namami runa mukthaye ||6||
+
+Kroora grahaih peedithanam bhakthanam abhaya pradham,
+Sri nrisimham mahaveeram namami runa mukthaye ||7||
+
+Veda vedantha yajnesam, brahma rudradhi vandhitham |
+Sri nrisimham mahaveeram namami runa mukthaye ||8||
+
+Ya idam pathathe nithyam, runa mochana samjnitham |
+Anrni jayathe sadyo, danam sigramavapnuyath ||9||
+```
+
 ```
 ॥ ಶ್ರೀನರಸಿಂಹಋಣಮೋಚನಸ್ತೋತ್ರ ॥
 

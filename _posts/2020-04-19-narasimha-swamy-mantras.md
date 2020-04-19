@@ -15,7 +15,7 @@ nrisimham bhishanam bhadram mrityur mrityum namamy aham ||
 [Original Post](https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/)
 [Video with kannada text](https://youtu.be/SeSi1DFu0Cs)
 
-**2. The Nrisimha Gayatri Stotra**
+**2. The Nrisimha Swamy Gayatri Stotra**
 ```
 Om Nrisimhaye vidmahe
 vajranakhaya dhimahi
@@ -65,7 +65,7 @@ tan no simhah prachodayat
 ```
 [Original script](https://sanskritdocuments.org/doc_vishhnu/narasinhaRiNamochanastotra.html?lang=kn)
 
-**3. Kannada Narsimha Sto
+**3. Kannada Narsimha Sto**
 
 
 **References:**

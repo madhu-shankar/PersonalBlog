@@ -23,10 +23,11 @@ tan no simhah prachodayat
 ```
 ```
 ಓಂ ನರಿಸಿಂಹಯೇ ವಿದ್ಮಹೇ
-ವಜ್ರನಖಯ ಧೀಮಹಿ
-ತನ್ ನಂ ಸಿಂಹಃ ಪ್ರಚೋದಯಾತ್
+ವಜ್ರ ನಖಾಯ ಧೀಮಹಿ
+ತನ್ನೋ ಸಿಂಹ ಪ್ರಚೋದಯಾತ್
 ```
 [Original Post](http://shrinarasimha.com/slogas.html)
+[Other Versions](https://templesinindiainfo.com/3-different-versions-shri-narasimha-gayatri-mantra-lyrics-in-kannada/)
 
 **2. Narasimha Runa-Vimochana Stotra.**
 ```

@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ## Narasimha Swamy Mantras
 
@@ -20,5 +20,3 @@ nrisimham bhishanam bhadram mrityur mrityum namamy aham ||
 
 * References:
 1. https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/
-
-

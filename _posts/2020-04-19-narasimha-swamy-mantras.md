@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-### Sri Narasimha Swamy Maha Mantra
+1. Sri Narasimha Swamy Maha Mantra
 
 ```
 Ugram viram maha-vishnum jvalantam sarvato mukham |

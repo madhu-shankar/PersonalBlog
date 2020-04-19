@@ -95,7 +95,17 @@ Anrni jayathe sadyo, danam sigramavapnuyath ||9||
 ```
 [Original script](https://sanskritdocuments.org/doc_vishhnu/narasinhaRiNamochanastotra.html?lang=kn)
 
-**3. Kannada Narsimha Sto**
+**3. Narasimha Prapatti **
+```
+MATA NARASIMHA, PITA NARASIMHA
+BRATHA NARASIMHA, SAKHA NARASIMHA
+VIDYAA NARASIMHA, DRAVINAM NARASIMHA
+SWAMI NARASIMHA, SAKALAM NARASIMHA
+ITHO NARASIMHA, PARATHO NARASIMHA
+YATHO YATHO YAHIHI, TATHO NARASIMHA
+NARASIMHA DEVAATH PARO NA KASCHIT
+TASMAAN NARASIMHA SHARANAM PRAPADYE
+```
 
 
 **References:**

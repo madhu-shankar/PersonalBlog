@@ -101,3 +101,4 @@ Anrni jayathe sadyo, danam sigramavapnuyath ||9||
 **References:**
 1. https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/
 2. https://sanskritdocuments.org/kannada/stotra/
+3. https://www.prapatti.com/stotras.php

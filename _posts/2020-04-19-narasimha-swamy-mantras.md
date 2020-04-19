@@ -106,11 +106,12 @@ YATHO YATHO YAHIHI, TATHO NARASIMHA
 NARASIMHA DEVAATH PARO NA KASCHIT
 TASMAAN NARASIMHA SHARANAM PRAPADYE
 ```
+[Original Post](http://shrinarasimha.com/slogas.html)
 
 **4. Mandra Raajapatha Stotram (Armor of God)**
 
 This stotram is called the ‘King of Slokas’. It is believed to be taught to Goddess Parvathi by Lord Shiva Himself. This powerful stotra can nullify the evil forces in all forms including the wicked effects black magic & demons and protect the devotees and their families like a strong armor (Kavacha). The English and Tamil PDF versions of this sloka are provided
-
+[Original Post](http://shrinarasimha.com/slogas.html)
 
 **References:**
 1. https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/

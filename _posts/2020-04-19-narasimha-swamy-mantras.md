@@ -52,7 +52,7 @@ nrisimham bhishanam bhadram mrityur mrityum namamy aham ||
 
 
 
-* References:
+**References:**
 1. https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/
 2. https://sanskritdocuments.org/kannada/stotra/
 

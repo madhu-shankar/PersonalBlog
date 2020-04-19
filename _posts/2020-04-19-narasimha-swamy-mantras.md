@@ -1,8 +1,6 @@
 ---
 published: true
 ---
-## Narasimha Swamy Mantras
-
 ### Sri Narasimha Swamy Maha Mantra
 
 ```

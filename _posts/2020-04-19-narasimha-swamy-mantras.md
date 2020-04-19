@@ -13,6 +13,7 @@ nrisimham bhishanam bhadram mrityur mrityum namamy aham ||
 ನರಸಿಂಹಂ ಭೀಷಣಂ ಭದ್ರಂ ಮೃತ್ಯುರ್ ಮೃತ್ಯುಂ ನಮಾಮ್ಯಹಂ ||
 ```
 [Original Post](https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/)
+[Video with kannada text](https://youtu.be/SeSi1DFu0Cs)
 
 **2. Narasimha Runa-Vimochana Stotra.**
 ```
@@ -50,6 +51,7 @@ nrisimham bhishanam bhadram mrityur mrityum namamy aham ||
 ```
 [Original script](https://sanskritdocuments.org/doc_vishhnu/narasinhaRiNamochanastotra.html?lang=kn)
 
+**3. Kannada Narsimha Sto
 
 
 **References:**

@@ -15,6 +15,19 @@ nrisimham bhishanam bhadram mrityur mrityum namamy aham ||
 [Original Post](https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/)
 [Video with kannada text](https://youtu.be/SeSi1DFu0Cs)
 
+**2. The Nrisimha Gayatri Stotra**
+```
+Om Nrisimhaye vidmahe
+vajranakhaya dhimahi
+tan no simhah prachodayat
+```
+```
+ಓಂ ನರಿಸಿಂಹಯೇ ವಿದ್ಮಹೇ
+ವಜ್ರನಖಯ ಧೀಮಹಿ
+ತನ್ ನಂ ಸಿಂಹಃ ಪ್ರಚೋದಯಾತ್
+```
+[Original Post](http://shrinarasimha.com/slogas.html)
+
 **2. Narasimha Runa-Vimochana Stotra.**
 ```
 ॥ ಶ್ರೀನರಸಿಂಹಋಣಮೋಚನಸ್ತೋತ್ರ ॥
@@ -57,4 +70,3 @@ nrisimham bhishanam bhadram mrityur mrityum namamy aham ||
 **References:**
 1. https://www.templepurohit.com/mantras-slokas-stotras/narasimha-mantra/
 2. https://sanskritdocuments.org/kannada/stotra/
-

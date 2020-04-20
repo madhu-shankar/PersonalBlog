@@ -18,5 +18,9 @@ published: true
 [Original Post](https://www.siddhayoga.org/surya-devata/surya-stotram)
 [Kannada Stotra](https://vignanam.org/veda/suryashtakam-kannada.html)
 
+**5 Nithya Stotras **
+[Original Post](https://gurucharana.wordpress.com/tag/kannadarayarastotra/)
+
 Reference:
 1. https://vignanam.org/veda/suryashtakam-kannada.html
+2. https://gurucharana.wordpress.com/tag/kannadarayarastotra/

@@ -12,3 +12,7 @@ published: true
 **3. Bhagavad Gita**
 
 [Bhagavad Gita](https://www.prapatti.com/categories/bhagavad-giita.php)
+
+**4. Surys Stotra**
+
+[Original Post](https://www.siddhayoga.org/surya-devata/surya-stotram)

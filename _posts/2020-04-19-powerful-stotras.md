@@ -16,3 +16,7 @@ published: true
 **4. Surys Stotra**
 
 [Original Post](https://www.siddhayoga.org/surya-devata/surya-stotram)
+[Kannada Stotra](https://vignanam.org/veda/suryashtakam-kannada.html)
+
+Reference:
+1. https://vignanam.org/veda/suryashtakam-kannada.html

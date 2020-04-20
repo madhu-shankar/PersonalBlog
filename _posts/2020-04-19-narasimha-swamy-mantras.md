@@ -109,6 +109,117 @@ TASMAAN NARASIMHA SHARANAM PRAPADYE
 ```
 [Original Post](http://shrinarasimha.com/slogas.html)
 
+**4. Lakshmi Narasimha Ashtohtara sata namavali**
+
+```
+oṃ nārasiṃhāya namaḥ
+oṃ mahāsiṃhāya namaḥ
+oṃ divya siṃhāya namaḥ
+oṃ mahābalāya namaḥ
+oṃ ugra siṃhāya namaḥ
+oṃ mahādevāya namaḥ
+oṃ stambhajāya namaḥ
+oṃ ugralocanāya namaḥ
+oṃ raudrāya namaḥ
+oṃ sarvādbhutāya namaḥ || 10 ||
+oṃ śrīmate namaḥ
+oṃ yogānandāya namaḥ
+oṃ trivikramāya namaḥ
+oṃ haraye namaḥ
+oṃ kolāhalāya namaḥ
+oṃ cakriṇe namaḥ
+oṃ vijayāya namaḥ
+oṃ jayavarṇanāya namaḥ
+oṃ pañcānanāya namaḥ
+oṃ parabrahmaṇe namaḥ || 20 ||
+oṃ aghorāya namaḥ
+oṃ ghora vikramāya namaḥ
+oṃ jvalanmukhāya namaḥ
+oṃ mahā jvālāya namaḥ
+oṃ jvālāmāline namaḥ
+oṃ mahā prabhave namaḥ
+oṃ niṭalākśhāya namaḥ
+oṃ sahasrākśhāya namaḥ
+oṃ durnirīkśhāya namaḥ
+oṃ pratāpanāya namaḥ || 30 ||
+oṃ mahādaṃśhṭrāyudhāya namaḥ
+oṃ prāGYāya namaḥ
+oṃ caṇḍakopine namaḥ
+oṃ sadāśivāya namaḥ
+oṃ hiraṇyaka śipudhvaṃsine namaḥ
+oṃ daityadāna vabhañjanāya namaḥ
+oṃ guṇabhadrāya namaḥ
+oṃ mahābhadrāya namaḥ
+oṃ balabhadrakāya namaḥ
+oṃ subhadrakāya namaḥ || 40 ||
+oṃ karāḻāya namaḥ
+oṃ vikarāḻāya namaḥ
+oṃ vikartre namaḥ
+oṃ sarvartrakāya namaḥ
+oṃ śiṃśumārāya namaḥ
+oṃ trilokātmane namaḥ
+oṃ īśāya namaḥ
+oṃ sarveśvarāya namaḥ
+oṃ vibhave namaḥ
+oṃ bhairavāḍambarāya namaḥ || 50 ||
+oṃ divyāya namaḥ
+oṃ acyutāya namaḥ
+oṃ kavaye namaḥ
+oṃ mādhavāya namaḥ
+oṃ adhokśhajāya namaḥ
+oṃ akśharāya namaḥ
+oṃ śarvāya namaḥ
+oṃ vanamāline namaḥ
+oṃ varapradāya namaḥ
+oṃ adhbhutāya namaḥ
+oṃ bhavyāya namaḥ
+oṃ śrīviśhṇave namaḥ
+oṃ puruśhottamāya namaḥ
+oṃ anaghāstrāya namaḥ
+oṃ nakhāstrāya namaḥ
+oṃ sūrya jyotiśhe namaḥ
+oṃ sureśvarāya namaḥ
+oṃ sahasrabāhave namaḥ
+oṃ sarvaGYāya namaḥ || 70 ||
+oṃ sarvasiddha pradāyakāya namaḥ
+oṃ vajradaṃśhṭraya namaḥ
+oṃ vajranakhāya namaḥ
+oṃ mahānandāya namaḥ
+oṃ parantapāya namaḥ
+oṃ sarvamantraika rūpāya namaḥ
+oṃ sarvatantrātmakāya namaḥ
+oṃ avyaktāya namaḥ
+oṃ suvyaktāya namaḥ || 80 ||
+oṃ vaiśākha śukla bhūtotdhāya namaḥ
+oṃ śaraṇāgata vatsalāya namaḥ
+oṃ udāra kīrtaye namaḥ
+oṃ puṇyātmane namaḥ
+oṃ daṇḍa vikramāya namaḥ
+oṃ vedatraya prapūjyāya namaḥ
+oṃ bhagavate namaḥ
+oṃ parameśvarāya namaḥ
+oṃ śrī vatsāṅkāya namaḥ || 90 ||
+oṃ śrīnivāsāya namaḥ
+oṃ jagadvyapine namaḥ
+oṃ jaganmayāya namaḥ
+oṃ jagatbhālāya namaḥ
+oṃ jagannādhāya namaḥ
+oṃ mahākāyāya namaḥ
+oṃ dvirūpabhrate namaḥ
+oṃ paramātmane namaḥ
+oṃ parajyotiśhe namaḥ
+oṃ nirguṇāya namaḥ || 100 ||
+oṃ nṛke sariṇe namaḥ
+oṃ paratattvāya namaḥ
+oṃ parandhāmne namaḥ
+oṃ saccidānanda vigrahāya namaḥ
+oṃ lakśhmīnṛsiṃhāya namaḥ
+oṃ sarvātmane namaḥ
+oṃ dhīrāya namaḥ
+oṃ prahlāda pālakāya namaḥ
+oṃ śrī lakśhmī narasiṃhāya namaḥ || 108 ||
+```
+
 **4. Mandra Raajapatha Stotram (Armor of God)**
 
 This stotram is called the ‘King of Slokas’. It is believed to be taught to Goddess Parvathi by Lord Shiva Himself. This powerful stotra can nullify the evil forces in all forms including the wicked effects black magic & demons and protect the devotees and their families like a strong armor (Kavacha). The English and Tamil PDF versions of this sloka are provided
